@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Ratatype
+🔭 I’m currently working in Gameloft Kharkiv
 
 
 ## 🌐 Socials:
